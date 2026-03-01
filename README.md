@@ -38,4 +38,4 @@ This portfolio is built for:
 
 ## 📬 Connect With Me
 LinkedIn: (www.linkedin.com/in/ajay-thakur-56a853398)
-Fiverr: (https://www.fiverr.com/s/pdR43yR)
+
