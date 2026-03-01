@@ -37,5 +37,5 @@ This portfolio is built for:
 ---
 
 ## 📬 Connect With Me
-LinkedIn: (add later)
+LinkedIn: (www.linkedin.com/in/ajay-thakur-56a853398)
 Fiverr: (add later)
